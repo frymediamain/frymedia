@@ -1,2 +1,2 @@
 # frymedia
-Fry Media Main
+All Rights Reserved @COPYRIGTHED TELİF HAKKI VARDIR
